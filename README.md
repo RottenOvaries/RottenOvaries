@@ -1,5 +1,2 @@
-𝙼𝚎 𝚕𝚕𝚊𝚖𝚘 𝙲𝚑𝚛𝚒𝚜𝚝𝚘𝚙𝚑𝚎𝚛 : ), 𝚙𝚎𝚛𝚘 𝚖𝚎 𝚙𝚞𝚎𝚍𝚎𝚜 𝚍𝚎𝚌𝚒𝚛 𝙲𝚑𝚛𝚒𝚜𝚜!!! <br>
+Me llamo Christopher, pero me puedes decir Chriss. <br>
 ────────────────────────────────────────────────────( ✮ )─── ⋆⭒˚.⋆ <br>
-<p align="left">
-  <img src="./Adios.gif" width="500">
-</p>
