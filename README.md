@@ -6,4 +6,4 @@ Soy mayor de edad y soy un hombre transexual🏳️‍⚧️, por ende me identi
 <br>
 ![Be Happy!](825e91745df958f10463d3d6140f9c84.jpg)
 <br>
-Extraño a mi amor 𖹭, el único que me hizo sentir especial, que en paz descanse allá en donde quiera que esté. <br>
+Extraño a mi amor, que en paz descanse allá en donde quiera que esté. <br>
