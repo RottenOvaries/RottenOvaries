@@ -25,7 +25,7 @@
 <br>
 
 <p align="center">
-  <img src="mm.jpg" alt="Be Happy!" width="1250">
+  <img src="mm.jpg" alt="Be Happy!" width="800">
 </p>
 
 <p align="center">
@@ -33,5 +33,5 @@
 </p>
 
 <p align="center">
-  <sub><i>Extraño a mi amor, que en paz descanse allá en donde quiera que estés, te amo.</i></sub>
+  <sub><i>Extraño a mi amor, que en paz descanses allá en donde quiera que estés, te amo.</i></sub>
 </p>
