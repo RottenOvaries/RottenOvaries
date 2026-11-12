@@ -1,5 +1,5 @@
 ***♫ Currently listening to:*** <br>
-<p align="center">
+<p>
   <i>
     <a href="https://open.spotify.com/intl-es/track/0TlcczkVTGpinpkGJpT81L?si=cfbe861a20e24435">
       Drag Path ── Twenty One Pilots
