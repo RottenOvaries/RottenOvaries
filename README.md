@@ -25,7 +25,7 @@
 <br>
 
 <p align="center">
-  <img src="mm.jpg" alt="Be Happy!" width="300">
+  <img src="mm.jpg" alt="Be Happy!" width="700">
 </p>
 
 <p align="center">
