@@ -1,7 +1,11 @@
-
-*♫ Currently listening to:* <br>
-*<a href="[LINK_DE_TU_CANCION](https://open.spotify.com/intl-es/track/0TlcczkVTGpinpkGJpT81L?si=cfbe861a20e24435)">Drag Path ── Twenty One Pilots</a>* <br>
-<br>
+***♫ Currently listening to:*** <br>
+<p align="center">
+  <i>
+    <a href="https://open.spotify.com/intl-es/track/0TlcczkVTGpinpkGJpT81L?si=cfbe861a20e24435">
+      Drag Path ── Twenty One Pilots
+    </a>
+  </i>
+</p>
 
 *Me llamo Christopher, pero me puedes decir Chriss!!! Sí, con doble "s".* <br> 
 ─────────────────────────────────── ( ୨ৎ ) ─────────────────────── ⋆⭒˚.⋆ <br>
@@ -10,6 +14,6 @@
 <br>
 ![Be Happy!](mm.jpg)
 <br>
-*Extraño a mi amor, que en paz descanse allá en donde quiera que esté.* <br>
+<sub>*Extraño a mi amor, que en paz descanse allá en donde quiera que esté.*</sub> <br>
 
 
