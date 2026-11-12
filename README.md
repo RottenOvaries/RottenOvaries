@@ -1,5 +1,5 @@
 Me llamo Christopher, pero me puedes decir Chriss!!! Sí, con doble "s" <br> 
-──────────────────────────────────────────────── ( ୨ৎ ) ───────────────────────── <br>
+──────────────────────────────────────────────── ( ୨ৎ ) ─────────────────────── ⋆⭒˚.⋆ <br>
 <br>
 Soy mayor de edad y me identifico con los pronombres "He/Him". : ) 🔞 <br>
 <br>
