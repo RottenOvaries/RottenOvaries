@@ -29,9 +29,5 @@
 </p>
 
 <p align="center">
-  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-</p>
-
-<p align="center">
   <sub><i>Extraño a mi amor, que en paz descanses allá en donde quiera que estés, te amo.</i></sub>
 </p>
