@@ -6,6 +6,8 @@
   <b>Drag Path ── Twenty One Pilots</b>
 </a>
 
+---
+
 </p>
 
 <br>
@@ -25,7 +27,7 @@
 <br>
 
 <p align="center">
-  <img src="mm.jpg" alt="Be Happy!" width="800">
+  <img src="mm.jpg" alt="Be Happy!" width="900">
 </p>
 
 <p align="center">
